@@ -14,7 +14,7 @@ In today’s digital age, managing your wireless services online is not only con
    :target: https://aclogportal.com/verizon-sign-in-account
 _________________________
   
-If you’ve ever wondered how to navigate the Verizon login system or faced difficulties signing in, this guide is here to help. We’ll cover everything from the basics of the Verizon sign in my account process to tips for troubleshooting common issues and maximizing your online account experience.
+If you’ve ever wondered how to navigate the Verizon login system or faced difficulties signing in, this guide is here to help. We’ll cover everything from the basics of the Verizon sign in my account process to tips for troubleshooting common issues and maximizing your online account experience "`verizone login my account <https://sites.google.com/view/myverizonguide/>`_".
 
 Understanding Verizon Sign In Account
 _______________________
